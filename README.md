@@ -1,0 +1,1 @@
+# SAP-Technology-Consultant-Professional-Certificate-SAP-Professional-Fundamentals
